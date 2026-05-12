@@ -1,4 +1,4 @@
-# 
+# best Sniper for meme coin sniper bot | take-profit & token-launch-monitoring is the best meme coin sniper bot, featuring take-profit and token-launch-monitoring. Fast, smart, and
 
 
 
